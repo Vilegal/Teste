@@ -1,5 +1,5 @@
 # Teste
-Nosso Primeiro Projeto
+Nosso Primeiro Projeto 🐱
 
 
 # Quem somos?
