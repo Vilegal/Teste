@@ -1,5 +1,5 @@
 # Teste
-Meu primeiro Projeto
+Nosso Primeiro Projeto
 
 
 # Quem somos?
