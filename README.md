@@ -5,6 +5,6 @@ Meu primeiro Projeto
 # Quem somos?
 Somos apenas 3 bobalhões aprendendo a Digitar códigos bonitinhos no nosso GitHUb
 
-# teste de edit
+# Somos comedores de cu (cuidado)
 
- teste de edit 22 (bolsonaro leg leg pow pow)
+Os comedores de cu irão invadir sua casa, irão lhe arrombar
