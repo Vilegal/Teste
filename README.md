@@ -16,4 +16,4 @@ Killian: [Segue aí](https://www.instagram.com/killian.kekw?igsh=MTd1eWNobGNpZnA
 tesde da subiscrita <sub> Vai vendo</sub>
 
 # Quem nós somos
-![Foto dos colaboradores] ()
+![Foto dos colaboradores](WhatsApp Image 2024-07-12 at 10.25.57.jpeg)
